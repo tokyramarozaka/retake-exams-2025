@@ -1,5 +1,10 @@
 # Retake exams subjects for 2025
 
+WEB3: https://drive.google.com/file/d/1wODdpR3Qhobd9u8_s9Do5OvDbCo-VDGs/view?usp=sharing
+
+Link to submit WEB3 : https://forms.gle/Ro8x87vkmaRsZzgXA
+
+---
 SYS1 : <https://drive.google.com/file/d/1DrlFZrw1zL1Jixts08vsvcA1sjXQHv9g/view?usp=sharing>
 
 THEORIE1P1 (papier) : <https://drive.google.com/file/d/1RrPW8sDWk1pKMuS6Ruw3heBep0nTO_fR/view?usp=sharing>
